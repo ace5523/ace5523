@@ -4,6 +4,8 @@
 
 -( My name is Ella, But Ace is fine )-
 
+If u ever wanna talk emailll meeeeeeeeeeeee
+
 "Hell is empty, all the devils are here" (Shakespeare)
 
 Today is April 9. On the 11th I go to France (:
