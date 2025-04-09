@@ -1,16 +1,15 @@
-## Hi there 👋
+## Heyyyy there 👋
 
-<!--
-**ace5523/ace5523** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-( My name is Ella, But Ace is fine )-
 
-Here are some ideas to get you started:
+"Hell is empty, all the devils are here" (Shakespeare)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Today is April 9. On the 11th I go to France (:
+
+feeling: anxious, excited, nervous, content (:
+
+I dont feel the need to share my favorite people anymore, I love all of my friends.
+
+People i dislike: Just Bobby lol. he makes us do conditioning now -_-
+
+things that annoy me: when people are too scraed to talk to me, boring books, when maverick gets my clothes dirty.
