@@ -8,10 +8,9 @@
 "Hell is empty, all the devils are here" (Shakespeare)
 
 
-feeling: anxious, excited, nervous, content (:
+feeling: idk but if i had to describe it with an emoji it would be: 😖
 
 
-things that annoy me: when people are too scared to talk to me, boring books when Maverick gets my clothes dirty.
 
 lyrics:
 
